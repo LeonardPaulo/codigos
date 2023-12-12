@@ -1,0 +1,2 @@
+# codigos
+Trabajo autónomo
